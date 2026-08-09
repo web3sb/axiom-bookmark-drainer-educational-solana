@@ -1,4 +1,5 @@
-<img width="702" height="886" alt="image" src="https://github.com/user-attachments/assets/690e1068-e517-4233-a1d2-cd55d99a4bcd" />
+<img width="1017" height="568" alt="image" src="https://github.com/user-attachments/assets/2fa44111-c2f7-4cff-921d-df8115b93a14" />
+
 
 
 # ⚠️ ВАЖНОЕ ПРЕДУПРЕЖДЕНИЕ / IMPORTANT WARNING / 重要警告
